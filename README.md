@@ -1,16 +1,13 @@
-### Hi there 👋
-
-<!--
-**PuruHuthika14/PuruHuthika14** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
+### Hiii 👋
+- My Name is PuruHuthika_Yerragunta
+- I am from INDIA
+- 🔭 I’m Currently Pursuing my masters in Northwest Missouri State University.
+- 🌱 I’m currently learning on Advance Database,JAVA,Webapps.
 - 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🤔 I’m looking for help with Java and Webapps
+- 💬 Ask me about suggestions on Novels
+- 📫 How to reach me: gmail(puruhuthika8@gmail.com)
+- 😄 Pronouns:Huthikaa
+- ⚡ Fun fact: I will on uncracked Jokes.
+- I am interested in watching movies and reading books.
+
