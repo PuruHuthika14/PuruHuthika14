@@ -7,6 +7,6 @@
 - 💬 Ask me about suggestions on Novels
 - 📫 How to reach me: gmail(puruhuthika8@gmail.com)
 - 😄 Pronouns:Huthikaa
-- ⚡ Fun fact: I will on uncracked Jokes.
+- ⚡ Fun fact: I make unfunny jokes.
 - I am interested in watching movies and reading books.
 
